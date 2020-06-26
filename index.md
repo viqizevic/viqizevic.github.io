@@ -10,7 +10,7 @@ With seven matches still to play, Jurgen Klopp's team have beaten the record for
 
 Liverpool, who ended a 30-year wait to be England's top-flight champions for the 19th time, will become the seventh club to lift the PL Trophy, after Man Utd, Blackburn Rovers, Arsenal, Chelsea, Man City and Leicester City.
 
-# Which records have they set?
+## Which records have they set?
 
 * Best start ever - When Liverpool reached 61 points from their opening 21 matches, it was the most a team had ever accumulated at that stage in any of Europe's top five leagues. They went on to extend their record, winning their following six fixtures to rack up 79 points from their first 27 matches before losing at Watford.
 * Most points won over 38 matches - With their 1-0 win at Tottenham Hotspur on 11 January, Liverpool set a record of 104 points from 38 Premier League matches, beating the 102 achieved by Manchester City and Chelsea, ending in 2018 and 2005 respectively.
