@@ -1,1 +1,1 @@
-# Liverpool FC secure their first Premier League title
+# Liverpool secure their first Premier League title
