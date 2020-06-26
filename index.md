@@ -17,3 +17,7 @@ Liverpool, who ended a 30-year wait to be England's top-flight champions for the
 * Biggest lead at the top - Liverpool have had a 25-point lead this season, the biggest ever in English top-flight history.
 * Most home wins in a row - Liverpool's 3-2 victory over West Ham United on 24 February was their 21st consecutive Premier League home win, beating Man City's record of 20, achieved between 2011 and 2012. They have since extended this record to 23 with the wins over AFC Bournemouth and Crystal Palace at Anfield.
 * Earliest title win - By claiming the title with seven matches to spare Liverpool beat the mark set of becoming champions with five matches remaining, set by Man Utd in 2000/01, and Man City in 2017/18.
+
+Jurgen Klopp said:
+> It's an incredible achievement by my players and it's a huge joy for me to coach them.
+> I haven't waited 30 years, I have been here for four-and-a-half years, but it is quite an achievement, especially with the three-month break because nobody knew if we could go on.
